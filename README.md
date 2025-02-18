@@ -1,16 +1,2 @@
-# university
-# university
-# university
-# university
-# university
-# universitet
-# universitet
-# universitet
-# universitet
-# universitet
-# universitet
-# universitet
-# universitet
-# university
-# university
+asfasfsafsa
 # university
