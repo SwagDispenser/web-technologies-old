@@ -1,1 +1,1 @@
-# ooplb01
+# web-technologies-labs
